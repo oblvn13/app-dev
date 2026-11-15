@@ -1,6 +1,7 @@
 # FAVORITE SHOW
 My favorite show of all time is **Breaking Bad**. I like it because of the way tension was built throughout the whole show, and that I watched it when I was 12 so that's probably why.
-![](https://static.wikia.nocookie.net/whumpapedia/images/2/29/Breaking_Bad.jpeg/revision/latest?cb=20190207003849)
+
+![](https://wallpapercave.com/wp/wp3963420.jpg)
 
 ## FAVORITE CHARACTER
 My favorite character from the show is *Hank Schrader*, because even if he was one of the guys that's stopping Walter (the main character), I still grew fond of him since he was a nice guy and made me root for him through the entire show.
