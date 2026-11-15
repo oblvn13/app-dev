@@ -1,5 +1,5 @@
 # FAVORITE SHOW
-My favorite show of all time is ==**Breaking Bad**==. I like it because of the way tension was built throughout the whole show. I watched it when I was 12 🥀, so it was different from the other shows that I was watching back then. The contrast between Breaking Bad and the other shows I used to watch wasn't even close when it comes to how good Breaking Bad was.
+My favorite show of all time is **Breaking Bad**. I like it because of the way tension was built throughout the whole show. I watched it when I was 12 🥀, so it was different from the other shows that I was watching back then. The contrast between Breaking Bad and the other shows I used to watch wasn't even close when it comes to how good Breaking Bad was.
 
 ![](https://wallpapercave.com/wp/wp3963420.jpg)
 
